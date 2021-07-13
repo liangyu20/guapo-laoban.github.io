@@ -2,7 +2,7 @@
 
 ### MUAMUAMUA
 
-Mi amor guapo :heart::heart::heart::heart::heart::heart::heart::heart::heart::heart::heart::heart::heart::heart::heart::heart::heart::heart:
+Mi amor guapo ❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 Mi amor banban❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️❤️
 
 
